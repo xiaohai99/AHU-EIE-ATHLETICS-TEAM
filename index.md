@@ -92,7 +92,15 @@
 <br>
 <br>
 
-###### 如果对田径队或此文档有任何疑问或建议，可发送任何非正式邮件至[xcseven@foxmail.com](xcseven@foxmail.com)，欢迎打扰！
-###### Version 1.2.1
-###### 2020/10/07
+-----------------------------
+<font size=5>如果对田径队或此文档有任何疑问或建议，可发送任何非正式邮件至[xcseven@foxmail.com](xcseven@foxmail.com)，欢迎打扰！</font>
+
+<font size=5>Version 1.2.1</font>
+
+<font size=5>2020/10/07</font>
+
+
+
+
+
 
