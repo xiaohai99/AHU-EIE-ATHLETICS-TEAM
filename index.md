@@ -1,4 +1,4 @@
-# 电院田径队 -AHU EIE ATHLETICS TEAM-  介绍与答疑
+# 电院田径队  介绍与答疑
 
 
 ![WYY Logo](123.JPG)
