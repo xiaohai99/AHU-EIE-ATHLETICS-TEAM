@@ -1,4 +1,4 @@
-# {% cq %}电院田径队&ensp;&ensp;介绍与答疑{% endcq %}
+# 电院田径队&ensp;&ensp;介绍与答疑
 
 ![WYY img](123.JPG)
 
