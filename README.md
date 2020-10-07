@@ -1,2 +1,2 @@
 # AHU-EIE-ATHLETICS-TEAM
-Welcome！
+Welcome to AHU EIE ATHLETICS TEAM ！
