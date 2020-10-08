@@ -112,7 +112,13 @@
 <br>
 
 -----------------------------
-<font size=1>如果对田径队或此文档有任何疑问或建议，可发送任何非正式邮件至 xcseven@foxmail.com ，欢迎打扰！</font>&emsp;&emsp;<font size=1>Version 1.3</font>&emsp;&emsp;<font size=1>2020/10/08</font>
+<font size=1>如果对田径队或此文档有任何疑问或建议，可发送任何非正式邮件至 xcseven@foxmail.com ，欢迎打扰！</font>
+
+
+<font size=1>Version 1.3</font>
+
+
+<font size=1>2020/10/08</font>
 
 
 
