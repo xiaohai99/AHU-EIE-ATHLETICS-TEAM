@@ -9,7 +9,7 @@
 
 <br>
 
-### 0、想看有意思照片的请直接滑动到文章末尾
+### 0、想看有意思照片视频的请直接滑动到文章末尾
 
 &emsp;&emsp;快去快去୧(๑•̀⌄•́๑)૭✧
 
@@ -82,7 +82,7 @@
 ### 13、校运会是什么？
 &emsp;&emsp;每年4月份，磬苑校区都会举办一场安大最隆重的活动，没有之一。8000人容量的北体育场里座无虚席，呐喊声、擂鼓声，不绝于耳。历时3整天，甲乙组合计50多个竞赛项目；20多个院系，逾1000名运动员参与角逐……
 
-&emsp;&emsp;想要更好地了解校运会，欢迎观看[安徽大学电视台](https://space.bilibili.com/158393127/)在校运会期间制作的视频：《[听歌看校运](https://b23.tv/RYccTh)》 和 《[拼途有你](https://b23.tv/R1ZN9r)》&ensp;&ensp;ps:视频里电院小哥哥小姐姐们的比赛服是红色的，外套是全校唯一的电院绿色，号码牌是P开头～
+&emsp;&emsp;想要更好地了解校运会，欢迎观看[安徽大学电视台](https://space.bilibili.com/158393127/)在校运会期间制作的视频：《[听歌看校运](https://b23.tv/RYccTh)》 和 《[拼途有你](https://b23.tv/R1ZN9r)》等&ensp;&ensp;ps:视频里电院小哥哥小姐姐们的比赛服是红色的，外套是全校唯一的电院绿色，号码牌是P开头～
 
 ### 14、田径队福利？
 + 获得较为专业的运动技巧与知识、接触到不同专业的同学与学长学姐们（田径队大家个个都是人才）、拥有快乐丰富的大学生活、锻炼毅力。
@@ -110,6 +110,28 @@
 + 有时会获得腰酸背痛腿抽筋福利，演老弱病残杠杠滴，可以省一大笔化妆费。
 
 ### 15、部分没有代表性的电院田径队瞬间
+
+校运预热：
+
+<iframe src="//player.bilibili.com/player.html?aid=49853063&bvid=BV1Nb411V7Mj&cid=87283264&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
+
+<iframe src="//player.bilibili.com/player.html?aid=49665079&bvid=BV1qb41157SG&cid=86957214&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
+
+赛前鼓舞：
+
+<iframe src="//player.bilibili.com/player.html?aid=49342104&bvid=BV1zb411L7va&cid=86395907&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
+
+激烈赛场：
+
+<iframe src="//player.bilibili.com/player.html?aid=49807202&bvid=BV1Jb411L7SH&cid=87201474&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
+
+<iframe src="//player.bilibili.com/player.html?aid=757559704&bvid=BV1r64y1S7YJ&cid=324382887&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
+
+毕业季-再见田径队：
+
+<iframe src="//player.bilibili.com/player.html?aid=327916919&bvid=BV1KA41187R4&cid=185239892&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
+
+<iframe src="//player.bilibili.com/player.html?aid=926032642&bvid=BV1sT4y1J7nk&cid=201699019&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
 
 2017年第一次夺冠：
 
@@ -203,5 +225,5 @@
 
 -----------------------------
 ##### 谢谢你看到这里，如果你对田径队或此文档有任何疑问或建议，可发送任何非正式邮件至 xcseven@foxmail.com ，欢迎打扰！
-##### Version 2.1&emsp;&emsp;2021/05/28
+##### Version 2.2&emsp;&emsp;2021/06/26
 
