@@ -109,23 +109,23 @@
 
 你见过这样的赛场吗？
 
-![DSC02327](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/DSC02327.JPG)
+![DSC02327](DSC02327.JPG)
 
-![DSC02338](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/DSC02338.JPG)
+![DSC02338](DSC02338.JPG)
 
 这里有一群欢乐的笑脸：
 
-![IMG_1082](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/IMG_1082.JPG)
+![IMG_1082](IMG_1082.JPG)
 
-![IMG_1094](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/IMG_1094.JPG)
+![IMG_1094](IMG_1094.JPG)
 
-![IMG_1088](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/IMG_1088.JPG)
+![IMG_1088](IMG_1088.JPG)
 
-![IMG_1089](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/IMG_1089.JPG)
+![IMG_1089](IMG_1089.JPG)
 
-![IMG_1090](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/IMG_1090.JPG)
+![IMG_1090](IMG_1090.JPG)
 
-![IMG_1087](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/IMG_1087.JPG)
+![IMG_1087](IMG_1087.JPG)
 
 也有一些充满热血的视频：
 
@@ -153,7 +153,7 @@
 
 2023年，偶尔也拿个团体总分第二玩一玩：
 
-![IMG_1083](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/IMG_1083.JPG)
+![IMG_1083](IMG_1083.JPG)
 
 哦，这是四连冠的绕场庆祝：
 
@@ -161,13 +161,13 @@
 
 也会把尽心尽责的田径队负责人们抛上天：
 
-![DSC02558](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/DSC02558.JPG)
+![DSC02558](DSC02558.JPG)
 
 ![上天](上天.jpg)
 
 比赛颁奖仪式是众多高光时刻之一：
 
-![DSC02223](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/DSC02223.JPG)
+![DSC02223](DSC02223.JPG)
 
 ![笔芯失败](笔芯失败.jpg)
 
@@ -179,7 +179,7 @@
 
 当然也还有别的一些加油打气方式：
 
-![DSC02297](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/DSC02297.JPG)
+![DSC02297](DSC02297.JPG)
 
 ![奖杯](奖杯.JPG)
 
