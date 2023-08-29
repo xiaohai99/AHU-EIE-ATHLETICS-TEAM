@@ -3,20 +3,16 @@
 ![WYY img](123.JPG)
 
 <br>
->我曾剪下自己的一段青春，用来奋不顾身地朝着一个目标狂奔，那勇敢的模样，任何时候想起来都觉得很漂亮。像夏日里热烈的太阳，像原野里自在的风，像从不跌倒过一样。我永远深信，有些东西，冬天从你身边带走了，春天还会还给你。就像，我与我的梦想。
+>我曾剪下自己的一段青春，用来奋不顾身地朝着一个目标狂奔，那勇敢的模样，任何时候想起来都觉得很漂亮。像夏日里热烈的太阳，像原野里自在的风，像从不跌倒过一样。我永远深信，有些东西，冬天从你身边带走了，春天，还会还给你。
 >
 >很多事情，只有真正开始做的时候，才会明白：努力从来不等于成功，而成功也从来不是终极目标。那些终极目标的梦想，其实是很难实现的。但你在追逐梦想的时候，你会找到一个更好的自己，一个拼搏、努力、自信的自己，你会因为自己所做的事情而觉得充实。
 
 <br>
 
-### 0、想看有意思照片视频的请直接滑动到文章末尾
-
-&emsp;&emsp;快去快去୧(๑•̀⌄•́๑)૭✧
-
 ### 1、电院田径队是什么？
 &emsp;&emsp;电院田径队就是一群爱好运动的朋友聚在一起训练、玩耍、交流、学习运动知识、增强身体素质，享受各种福利的充满温情和凝聚力的组织。电院田径队的主要职责是带领大家<font color="ff0000">快乐训练</font>，<font color="ff0000">增强体质</font>，<font color="ff0000">丰富大学生活</font>，并在每年4月的校运会上<font color="ff0000">有所收获</font>（例如奖牌和奖金；优秀的同学有机会进入校队并参加省运会等）。电院田径队现阶段的目标是在20多个学院参与的校运会中获得五连冠。
 
-&emsp;&emsp;电院田径队创立的时间相对不久，但自创立之初就奔着校运会第一名而去。电院田径队也曾受到别人的嘲笑，但如今电院是四冠王，\*\*87431111是他的过往。
+&emsp;&emsp;电院田径队创立的时间相对不久，但自创立之初就奔着校运会第一名而去。电院田径队也曾受到别人的嘲笑，但电院拿过四冠王。九年间，874311112的总分排名是他的过往。
 
 ### 2、电院田径队什么时候开始训练，每次训练怎么安排？
 &emsp;&emsp;田径队的训练分为冬训、春训两个阶段。
@@ -25,9 +21,9 @@
 
 &emsp;&emsp;春训一般在每年第二学期开学的一周内开始（也就是过完寒假回校的那一周），持续到4月校运会开始的前一周（校运会的前一周作为恢复期，运动量显著减少，助大家在比赛中获得最好状态）。春训和冬训总训练周数大约为18周。
 
-&emsp;&emsp;田径队一般在每周的周一、三、五下午2节课后开始训练，直到下午6点15分左右结束（如果统计得出的大家对应时间课程较多，训练开始时间可能会调整为3节课后）。
+&emsp;&emsp;田径队一般在每周的周一、三、五下午第3节课后开始训练，直到下午6点15分左右结束。
 
-&emsp;&emsp;田径队的每次训练分为三个同等重要的部分：热身、训练、放(推)松(拿）。地点在豪华、人少的北体育场（前几周可能会在南体训练）。
+&emsp;&emsp;田径队的每次训练分为三个同等重要的部分：热身、训练、放(推)松(拿）。地点在豪华的北体育场。
 
 ### 3、训练与下午、晚上的课程冲突怎么办？晚上还有时间洗澡吗？
 &emsp;&emsp;田径队会以大家的课程安排为第一优先级。
@@ -87,6 +83,8 @@
 ### 14、田径队福利？
 + 获得较为专业的运动技巧与知识、提升毅力。
 
++ 团建。田径队每个月都有团建经费，可带大家一起吃吃喝喝～
+
 + 接触到不同专业甚至别的学院的的同学与学长学姐们（田径队大家个个都是人才），拓展社交圈。
 
 + 拥有快乐丰富的大学生活与刻骨铭心的大学回忆。
@@ -97,10 +95,10 @@
 
 + 在电院田径队训练，有一定的补贴（详情[点我](https://mp.weixin.qq.com/s/XSNzeK2pW5fTHo5rni0EKQ)）。
   + 每次训练都有经济补贴，在下一年统一发放（当次训练缺勤则没有当次补贴；提前退队也么得补贴）。
-  + 购买的钉鞋会进行适当的补贴。
-  + 校运会比赛中每得1分会有30元奖金（电院田径队在某年得了差不多400分）。
+  + 购买的钉鞋会进行适当补贴。
+  + 校运会比赛中每得1分会有60元奖金（电院田径队在某年得了差不多400分，你算算看）。
   + 校运会破纪录可得1000元奖金。
-  + 破院记录，你的名字将会书写在院记录表上，供大家景仰。
+  + 破校记录可能有点难，破院记录还是努努力可以做到的。你的名字将会书写在院记录表上，供大家景仰。
   + ...
 
 + 找到刻骨铭心的另一半（听说心跳加速更容易产生爱情，平均每年队内都会内部脱单一两对）。
@@ -109,57 +107,79 @@
 
 ### 15、部分没有代表性的电院田径队瞬间
 
-校运预热：
+你见过这样的赛场吗？
+
+![DSC02327](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/DSC02327.JPG)
+
+![DSC02338](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/DSC02338.JPG)
+
+这里有一群欢乐的笑脸：
+
+![IMG_1082](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/IMG_1082.JPG)
+
+![IMG_1094](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/IMG_1094.JPG)
+
+![IMG_1088](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/IMG_1088.JPG)
+
+![IMG_1089](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/IMG_1089.JPG)
+
+![IMG_1090](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/IMG_1090.JPG)
+
+![IMG_1087](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/IMG_1087.JPG)
+
+也有一些充满热血的视频：
 
 <iframe src="//player.bilibili.com/player.html?aid=49853063&bvid=BV1Nb411V7Mj&cid=87283264&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
 
 <iframe src="//player.bilibili.com/player.html?aid=49665079&bvid=BV1qb41157SG&cid=86957214&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
 
-赛前鼓舞：
-
-<iframe src="//player.bilibili.com/player.html?aid=49342104&bvid=BV1zb411L7va&cid=86395907&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
-
-激烈赛场：
+激烈的赛场当然也少不了视频记录：
 
 <iframe src="//player.bilibili.com/player.html?aid=49807202&bvid=BV1Jb411L7SH&cid=87201474&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
 
 <iframe src="//player.bilibili.com/player.html?aid=757559704&bvid=BV1r64y1S7YJ&cid=324382887&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
 
-毕业季-再见田径队：
+毕业季，朋友们对田径队的告白与告别：
 
 <iframe src="//player.bilibili.com/player.html?aid=327916919&bvid=BV1KA41187R4&cid=185239892&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
 
-<iframe src="//player.bilibili.com/player.html?aid=926032642&bvid=BV1sT4y1J7nk&cid=201699019&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true"> </iframe>
-
-2017年第一次夺冠：
+继电院田径队2017年第一次夺冠后：
 
 ![2017第一次夺冠](2017第一次夺冠.JPG)
 
-2021年四连冠：
+2021年，四连冠了：
 
 ![金牌教练](金牌教练.jpg)
 
-四连冠绕场：
+2023年，偶尔也拿个团体总分第二玩一玩：
+
+![IMG_1083](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/IMG_1083.JPG)
+
+哦，这是四连冠的绕场庆祝：
 
 ![绕场](绕场.jpg)
 
-抛上天：
+也会把尽心尽责的田径队负责人们抛上天：
+
+![DSC02558](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/DSC02558.JPG)
 
 ![上天](上天.jpg)
 
-接力比赛颁奖仪式：
+比赛颁奖仪式是众多高光时刻之一：
+
+![DSC02223](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/DSC02223.JPG)
 
 ![笔芯失败](笔芯失败.jpg)
 
-全能项目颁奖仪式：
-
 ![全能王](全能王.jpg)
 
-男乙200m包揽前三：
+像这种电院包揽前三的场面，刺不刺激：
 
 ![梦境再现](梦境再现.jpg)
 
-完赛的庆祝：
+当然也还有别的一些加油打气方式：
+
+![DSC02297](/Users/xiaohai/Documents/GitHub/AHU-EIE-ATHLETICS-TEAM/DSC02297.JPG)
 
 ![奖杯](奖杯.JPG)
 
@@ -207,7 +227,7 @@
 
 ![训练合集](训练合集.JPEG)
 
-偶尔的团建：
+团建：
 
 ![团建](团建.JPG)
 
@@ -223,5 +243,5 @@
 
 -----------------------------
 ##### 谢谢你看到这里，如果你对田径队或此文档有任何疑问或建议，可发送任何非正式邮件至 xcseven@foxmail.com ，欢迎打扰！
-##### Version 3.0&emsp;&emsp;2021/12/22
+##### Version 4.0&emsp;&emsp;2023/08/29
 
